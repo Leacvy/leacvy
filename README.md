@@ -1,2 +1,0 @@
-# leacvy
-personal documents
